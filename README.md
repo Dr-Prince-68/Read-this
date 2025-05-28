@@ -12,9 +12,10 @@ I tend to be afk or doing stuff while on ponytown, but if you whisper to me I wi
 <p align=" center">
 Some notes about me: Due to my mental illnesses I heavily connect with characters almost like plurality (not sure if theres a better term for it). In this case for me, I heavily associate myself with these characters:
 <p align=" center">
+$\color{#FF0000}{"-✧Phosphophyllite✧"}$
 $\color{#FF0000}{"-Grian"}$
 $\color{#FF0000}{"-Candy~apple"}$
-$\color{#FF0000}{"-SCP-963~(DNI~AB/JB~users"}$
+$\color{#FF0000}{"-SCP✧963~(DNI~AB/JB~users"}$
 $\color{#FF0000}{"-Black~forest"}$
 $\color{#FF0000}{"-Kindred(Specifically~Lamb)"}$
 
@@ -30,4 +31,11 @@ $\color{#FF0000}{"MORE~SPECIFICS~HERE"}$
 
 <p align=" center">
 <a href="https://dr-prince.carrd.co/">✧✧✧✧✧✧</a>
+  
+<p align="center">
+  <img width="500" height="400" src="https://s14.gifyu.com/images/bxH7l.gif">
+</p>
+
+
+
 
